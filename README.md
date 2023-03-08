@@ -4,3 +4,6 @@
 
 - if you reading this , i want to say nice to meet you : )
 - my name is free , you can call what ever you want : )
+
+
+![gif](https://user-images.githubusercontent.com/127272316/223617716-f31cde62-4d8b-4bf3-9c67-d3873a3032cc.png)
